@@ -23,7 +23,7 @@ It features approximately 200+ electronic components complete with their visible
 
 
 
-⭐⭐⭐ENONGATED DESCRIPTION
+MORE INFORMATION
 
 
 
